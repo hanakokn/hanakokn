@@ -1,3 +1,5 @@
+![](https://komarev.com/ghpvc/?username=aaudrena&style=plastic&color=e9a0d8&label=haii!)
+  
 ![image](https://i.pinimg.com/736x/42/1e/97/421e975d727e5750d82f8b9b83c9ed7b.jpg)  
 (art by inklexk on twitter!)  
   
