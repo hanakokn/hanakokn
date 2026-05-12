@@ -9,6 +9,10 @@
 　  
 $${\color{#fcd647} audrena \space \color{#ffffff} / \space \color{#f66219} sal}$$  
 
+<img width="591" height="586" alt="Untitled410_20260512164309" src="https://github.com/user-attachments/assets/f94284c5-15fe-4d7d-b086-a57993891c04" />
+
+
+
 somejting somethijgnsonething
 
 sowmthinf sonethinf something
