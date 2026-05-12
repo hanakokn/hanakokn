@@ -34,11 +34,6 @@ https://pronouns.cc/@audr3na
 </details>  
 　
 
-
-<img width="2048" height="154" alt="Tumblr_l_171151699863354" src="https://github.com/user-attachments/assets/2d170842-7d64-4844-bf8c-fd645c964566" />  
-
-　
-
 ㅤ  
 <img width="100" height="51" alt="590946543-e0c657f0-9827-435e-aab2-9c9d46cdc38f_1_50" src="https://github.com/user-attachments/assets/d246b6af-2921-4323-84e8-6149b9bccddf" />
 <img width="100" height="51" alt="590946485-43f40fa5-2e7e-480d-887c-3fe976870134_50" src="https://github.com/user-attachments/assets/80dd84ac-8ad4-48d6-9d12-9a2a4f32a09f" />
