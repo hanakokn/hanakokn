@@ -17,12 +17,12 @@ $${\color{#fcd647} audrena \space \color{#ffffff} / \space \color{#f66219} sal}$
 <summary>$${\color{#ffe148} ⟢ \space interests \space ᵎ!ᵎ }$$</summary>
 sally face , tbhk , dandys world , dollys factory , fnaf , jjk , danganronpa , ddlc , pkmn , minecraft , the flash , aggretsuko , kny , pjsk , adopt me , fortnite , tadc , gachiakuta , tshd , tdlosk , alnst , bjhm , smiling friends , crk , scott pilgrim (comics + movie + animated) , breaking bad / better call saul , cosmic princess kaguya , open to getting into more stufff ^_^
 </details>
-
+ㅤ
 <details>
 <summary>$${\color{#ff8037} ⟢ \space dni \space ᵎ!ᵎ}$$</summary>
 basic dni , pro/com/dark shippers , 20+ , 13- , murder drones fandom , dandadan fandom , forsaken fandom , ppl who sexualize everything , ppl who hate on any of my interests DIRECTLY to me , old friends ( if we left off on bad terms ) , ai supporters / users , trump supporters , pony copiers / those who take inspo without perm , ppl who r mean CONSTANTLY but play it off as a joke
 </details>  
-
+ㅤ
 <details>
 <summary>$${\color{#d33b1a} ⟢ \space links \space ᵎ!ᵎ}$$</summary>
 https://audr3na.straw.page
