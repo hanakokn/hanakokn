@@ -9,14 +9,16 @@
 　  
 $${\color{#fcd647} audrena \space \color{#ffffff} / \space \color{#f66219} sal}$$  
 
-<img width="591" height="586" alt="Untitled410_20260512164309" src="https://github.com/user-attachments/assets/f94284c5-15fe-4d7d-b086-a57993891c04" />
+<img width="296" height="293" alt="591341062-f94284c5-15fe-4d7d-b086-a57993891c04_50" src="https://github.com/user-attachments/assets/26fae849-9ed1-4710-8671-b5666fdbe766" />  
 
 
-
+ㅤ  
 somejting somethijgnsonething
 
-sowmthinf sonethinf something
-   
+sowmthinf sonethinf something  
+
+
+ㅤ  
 <img width="100" height="51" alt="590946543-e0c657f0-9827-435e-aab2-9c9d46cdc38f_1_50" src="https://github.com/user-attachments/assets/d246b6af-2921-4323-84e8-6149b9bccddf" />
 <img width="100" height="51" alt="590946485-43f40fa5-2e7e-480d-887c-3fe976870134_50" src="https://github.com/user-attachments/assets/80dd84ac-8ad4-48d6-9d12-9a2a4f32a09f" />
 <img width="100" height="51" alt="590946309-4578edb1-6c29-4645-b4ad-fc5272305fc8_50" src="https://github.com/user-attachments/assets/59a1bc1c-887f-4058-8532-c3a2b8dd47e7" />  
