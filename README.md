@@ -13,11 +13,25 @@ $${\color{#fcd647} audrena \space \color{#ffffff} / \space \color{#f66219} sal}$
 
 
 ㅤ  
-somejting somethijgnsonething
+<details>
+<summary>$${\color{#ffe148} ⟢ \space interests \space ᵎ!ᵎ }$$</summary>
+sally face , tbhk , dandys world , dollys factory , fnaf , jjk , danganronpa , ddlc , pkmn , minecraft , the flash , aggretsuko , kny , pjsk , adopt me , fortnite , tadc , gachiakuta , tshd , tdlosk , alnst , bjhm , smiling friends , crk , scott pilgrim (comics + movie + animated) , breaking bad / better call saul , cosmic princess kaguya , open to getting into more stufff ^_^
+</details>
 
-sowmthinf sonethinf something  
+<details>
+<summary>$${\color{#ff8037} ⟢ \space dni \space ᵎ!ᵎ}$$</summary>
+basic dni , pro/com/dark shippers , 20+ , 13- , murder drones fandom , dandadan fandom , forsaken fandom , ppl who sexualize everything , ppl who hate on any of my interests DIRECTLY to me , old friends ( if we left off on bad terms ) , ai supporters / users , trump supporters , pony copiers / those who take inspo without perm , ppl who r mean CONSTANTLY but play it off as a joke
+</details>  
+
+<details>
+<summary>$${\color{#d33b1a} ⟢ \space links \space ᵎ!ᵎ}$$</summary>
+https://audr3na.straw.page
+ㅤ
+https://audr3na.atabook.org
 
 
+https://pronouns.cc/@audr3na
+</details>  
 ㅤ  
 <img width="100" height="51" alt="590946543-e0c657f0-9827-435e-aab2-9c9d46cdc38f_1_50" src="https://github.com/user-attachments/assets/d246b6af-2921-4323-84e8-6149b9bccddf" />
 <img width="100" height="51" alt="590946485-43f40fa5-2e7e-480d-887c-3fe976870134_50" src="https://github.com/user-attachments/assets/80dd84ac-8ad4-48d6-9d12-9a2a4f32a09f" />
